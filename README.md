@@ -27,8 +27,8 @@ Tenho me dedicado a aprender as bases do desenvolvimento web, com o objetivo de 
 ---
 
 ### 📫 Vamos nos conectar?
-- [LinkedIn](https://www.linkedin.com/in/seu-usuario-aqui)  
-- Email: **seuemail@exemplo.com**
+- [LinkedIn](https://www.linkedin.com/in/pedro-santos-74814a380/)  
+- Email: **pedrohsantos5942@gmail.com**
 
 ---
 
